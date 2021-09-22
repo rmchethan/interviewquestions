@@ -5,3 +5,4 @@ Tell me about an instance when you had a disagreement with your reporting manage
 When was the last time did you took a stand for something you belived in?
 Tell me about a decision that you made ended up failing and what did you learn from that?
 Tell me about a critical feedback that you received from your manager? 
+nn
